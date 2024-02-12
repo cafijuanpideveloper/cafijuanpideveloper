@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on videogames projects
 - 📫 How to reach me by sending me an email or a message here.
 - 😄 Pronouns: Juanpi, Cafi, Potterius, OPOPOPO.
-- ⚡ Fun fact: I used to be an merchant marine pilot and now i am turning my life around.
+- ⚡ Fun fact: I used to be an merchant marine pilot and now i am changing my carreer.
 
 <!---
 cafijuanpideveloper/cafijuanpideveloper is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
